@@ -1,0 +1,2 @@
+# MY-FIRST-HACKATHON
+From November 18 2021, My first ever hackathon was started. It was a hackathon organized by BOSTON International College Bharatpur. In that event me and my team members did really well. Being only +2 students, we were competing against bachelor level  competitor who are in high level than us in both in knowledge and skill And we did well actually... we came as an 2nd runner up even we are at disadvantage. It was amazing experience.  
